@@ -1,5 +1,11 @@
 # I'M INSIDE YOUR WALLS!!!
 
+**Profile Visits**
+
+![Profile Views](https://count.getloli.com/get/@seillander?theme=rule34)
+
+_thanks for this profile visit counter @Genshirog 😭😭😭, ts is so kevin 🥀..._
+
 <!--
 ## Hi there 👋
 
